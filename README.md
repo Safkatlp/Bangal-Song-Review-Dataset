@@ -1,1 +1,1 @@
-# Reviews of Bangal Song in Bangla and English Sentence.
+# Reviews of Bangla Song in both Bangla and English Sentences.
